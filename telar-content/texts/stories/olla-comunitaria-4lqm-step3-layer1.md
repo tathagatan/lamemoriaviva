@@ -1,0 +1,9 @@
+---
+title: "Saber más"
+---
+
+ 
+
+El primer día preparamos 850 almuerzos. Cocinamos sancocho, arroz, ensalada y agua de panela con limón. Todos los días abríamos la olla comunitaria desde las 9 de la mañana hasta las 6 de la tarde, porque habíamos llegado a un acuerdo con los comerciantes para no cerrar completamente la vía. A esa hora comenzábamos a cocinar, hacíamos actividades lúdicas y juegos debajo del puente, y luego, a la 1 de la tarde, cerrábamos el puente hasta las 6. Como a las 4:30 servíamos una merienda: pan con gaseosa, chocolate o agua de panela. Así pasamos tres meses, hasta que el ESMAD llegó y nos tumbó la olla. Eso fue casi a finales de junio. A comienzos de agosto nos trasladamos al Parque Junín, pero allí también nos obligaron a desmontarla. Luego fuimos a otro lugar, el "triangulito", y de nuevo nos hicieron quitarla. Después nos tocó irnos aún más arriba. Cada vez que desmontaban la olla, nos tocaba movernos de sitio para que no nos la quitaran ni destruyeran la comida. Todos los días alcanzamos a alimentar entre 600 a 850 personas.
+
+En las ollas éramos seis mamás. Seis mujeres que veníamos a ayudar: unas cocinábamos, poníamos la sazón, y las otras nos ayudaban con el picado. Además, estaban los muchachos que se encargaban de conseguir la leña, los bloques para montar las ollas... porque todo era autogestionado. La gente llegaba y nos donaba arroz, papa, yuca, plátano, frijoles, lentejas. Así, todos los días preparábamos un menú distinto. En el Punto de la Luna, nadie puede decir que comimos lentejas todos los días, porque siempre variábamos: un día hacíamos sancocho, otro día frijoles, al siguiente lentejas, luego pasas... hasta sancocho de pescado llegamos a preparar.
